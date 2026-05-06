@@ -2,6 +2,16 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-07 01:54 IR
+- 🗜️ [ارتباط مؤثر ｜ فن بیان، زبان بدن و مهارت‌های نرم (۴۲).mp4.zip](https://github.com/HarryTheCodeForker/sandbox/raw/main/dl/%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%20%D9%85%D8%A4%D8%AB%D8%B1%20%EF%BD%9C%20%D9%81%D9%86%20%D8%A8%DB%8C%D8%A7%D9%86%D8%8C%20%D8%B2%D8%A8%D8%A7%D9%86%20%D8%A8%D8%AF%D9%86%20%D9%88%20%D9%85%D9%87%D8%A7%D8%B1%D8%AA%E2%80%8C%D9%87%D8%A7%DB%8C%20%D9%86%D8%B1%D9%85%20%28%DB%B4%DB%B2%29.mp4.zip) `49.7MB`
+
+- 🗜️ [ارتباط مؤثر ｜ فن بیان، زبان بدن و مهارت‌های نرم (۴۲).mp4.z01](https://github.com/HarryTheCodeForker/sandbox/raw/main/dl/%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%20%D9%85%D8%A4%D8%AB%D8%B1%20%EF%BD%9C%20%D9%81%D9%86%20%D8%A8%DB%8C%D8%A7%D9%86%D8%8C%20%D8%B2%D8%A8%D8%A7%D9%86%20%D8%A8%D8%AF%D9%86%20%D9%88%20%D9%85%D9%87%D8%A7%D8%B1%D8%AA%E2%80%8C%D9%87%D8%A7%DB%8C%20%D9%86%D8%B1%D9%85%20%28%DB%B4%DB%B2%29.mp4.z01) `95.0MB`
+
+- 🗜️ [ارتباط مؤثر ｜ فن بیان، زبان بدن و مهارت‌های نرم (۴۲).mp4.zip](https://github.com/HarryTheCodeForker/sandbox/raw/main/dl/%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%20%D9%85%D8%A4%D8%AB%D8%B1%20%EF%BD%9C%20%D9%81%D9%86%20%D8%A8%DB%8C%D8%A7%D9%86%D8%8C%20%D8%B2%D8%A8%D8%A7%D9%86%20%D8%A8%D8%AF%D9%86%20%D9%88%20%D9%85%D9%87%D8%A7%D8%B1%D8%AA%E2%80%8C%D9%87%D8%A7%DB%8C%20%D9%86%D8%B1%D9%85%20%28%DB%B4%DB%B2%29.mp4.zip) `49.7MB`
+
+---
+
+
 ### 📅 2026-05-07 01:44 IR
 - 🗜️ [ذهنیت کارفرمایی؛ هنر ساختن امپراتوری (۵۳).mp4.zip](https://github.com/HarryTheCodeForker/sandbox/raw/main/dl/%D8%B0%D9%87%D9%86%DB%8C%D8%AA%20%DA%A9%D8%A7%D8%B1%D9%81%D8%B1%D9%85%D8%A7%DB%8C%DB%8C%D8%9B%20%D9%87%D9%86%D8%B1%20%D8%B3%D8%A7%D8%AE%D8%AA%D9%86%20%D8%A7%D9%85%D9%BE%D8%B1%D8%A7%D8%AA%D9%88%D8%B1%DB%8C%20%28%DB%B5%DB%B3%29.mp4.zip) `80.4MB`
 
